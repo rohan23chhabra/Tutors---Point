@@ -18,6 +18,6 @@ Tutorspoint
 
 * Now you're good to go.
 
-![1](https://drive.google.com/file/d/1tVP7P9z-s2tVbBSg03GNLfx6FLQNeJ7N/view?usp=sharing)
-![2](https://drive.google.com/file/d/15AZ_Vu0sQWhnBvYtvvW3Ho8wRV4WAsnE/view?usp=sharing)
+![1](https://i.imgur.com/j3qewjD.jpg)
+
 
